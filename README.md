@@ -1,4 +1,4 @@
-# hunny2000.github.io## 
+# hunny2000.github.io
 Privacy Policy
 
 Abhinav Bhasin built the Cubathon app as a Free app. This SERVICE is provided by Abhinav Bhasin at no cost and is intended for use as is.
